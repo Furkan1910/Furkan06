@@ -1,2 +1,0 @@
-# Furkan06
-Mslwj
